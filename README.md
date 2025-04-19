@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @ScorpionSub0
-- 👀 I’m interested in ...GET OVER HERE!
+- 👀 I’m interested in ... GET OVER HERE!
 - 🌱 I’m currently learning ... How to contain fire in Ice
 - 💞️ I’m looking to collaborate on ... fusing ice and fire
-- 📫 How to reach me ... Test Your MIGHNT!
+- 📫 How to reach me ... Test Your MIGHT!
 - 😄 Pronouns: ... Fatality!
 - ⚡ Fun fact: ... The Netherrealm is safe
 
